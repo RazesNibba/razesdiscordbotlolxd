@@ -1,0 +1,2 @@
+# razesdiscordbotlolxd
+lolxd
